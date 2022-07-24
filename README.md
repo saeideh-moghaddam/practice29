@@ -12,3 +12,8 @@
 ![photo_2022-07-24_20-17-47](https://user-images.githubusercontent.com/108235776/180655425-84ab28ac-e991-43ec-a917-118777f096ff.jpg)
 
 **(output)**
+---
+
+![photo_2022-07-24_20-31-49](https://user-images.githubusercontent.com/108235776/180655908-f793b7cc-8f03-460b-be4b-0fb7e12c48c3.jpg)
+
+**(paint making)**
